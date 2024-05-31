@@ -5,4 +5,3 @@
 - 👯 I’m looking to collaborate on Natural Language Processing projects.
 - 📫 How to reach me: elizabethnuomaakossey@gmail.com
 - ⚡ Fun fact: I love to teach kids. In fact, everybody.
--->
